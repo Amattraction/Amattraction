@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Amattraction
 - 👀 I’m interested in ...Bits and colors.
-- 🌱 I’m currently learning ... Cyber security 
+- 🌱 I’m currently exploring ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... jain.kashish.8003@gmail.com
+- 📫 How to reach me  jain.kashish.8003@gmail.com
 - 😄 Pronouns: ...She/Her
 - ⚡ Fun fact: ... Kashish is all good and fine until........
 
