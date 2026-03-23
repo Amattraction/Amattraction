@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  jain.kashish.8003@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: AI, ML and NLP 
+- ⚡ Fun fact: AI, ML and NLP
+- Connect with me: www.linkedin.com/in/kashish-jain-attraction
 
 <!---
 Amattraction/Amattraction is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
